@@ -1,4 +1,4 @@
-# Setlist Peter’s party – versie 1
+# AM Setlist 
 
 1.	Somebody to love – Jefferson Airplane
 
