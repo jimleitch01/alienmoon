@@ -1,5 +1,7 @@
 # AM Setlist 
 
+0. Birthday - The Beatles
+
 1.	Somebody to love – Jefferson Airplane
 
 2.	Going Down – Freddy King
